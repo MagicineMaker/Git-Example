@@ -1,1 +1,1 @@
-# Goodbye~
+# Goodbye to absent guys~
