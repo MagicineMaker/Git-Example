@@ -1,1 +1,1 @@
-# TA says hello!
+# TA says hello to present students!
